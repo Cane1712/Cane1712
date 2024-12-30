@@ -1,1 +1,1 @@
-yeah
+justice and evil are one and the same the only thing that changes is you
