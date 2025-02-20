@@ -1,2 +1,2 @@
-## will take up farming
+## normal developer
 i hate javascript yet i love working on websites
